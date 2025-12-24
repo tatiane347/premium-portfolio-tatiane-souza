@@ -6,3 +6,4 @@ Commit (README.md)👩‍💻 Portfólio Profissional | Tatiane SouzaEngenharia 
 
 <img width="985" height="557" alt="Captura de tela_2025-12-24_12-20-24" src="https://github.com/user-attachments/assets/b5075e17-5f86-40f7-9b2c-922394f38aa5" />
 <img width="990" height="556" alt="Captura de tela_2025-12-24_12-20-39" src="https://github.com/user-attachments/assets/1c5d731a-23ce-444f-8b48-9580f1350433" />
+Acesse o link só vivo aqui 📹📹📹📹https://tatiane347.github.io/premium-portfolio-tatiane-souza/
